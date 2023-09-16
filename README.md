@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @juliabacova
-- 👀 I’m interested in ...
+- 👋 Hi, I’m @juliabacova and i am new in github.
+- 👀 I’m interested in coding.
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on couple of projects.
