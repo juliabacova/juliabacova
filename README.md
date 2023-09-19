@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning new things about frontend.
 - 💞️ I’m looking to collaborate on couple of projects. I am investor.
 
-A am going to learn Angular.
+A am going to learn Angular/Jquery/LESS/CSS.
