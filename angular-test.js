@@ -6,7 +6,7 @@ jtrjtr jkwebkew
 bjklewlknew
 ťztjťut wejgew
 lhwenjlknwejhlew
-iztitzzt
+iztitzzt nwlkgewnlk
 jtrjej
 jejejreergt
 jsroiehnoin
