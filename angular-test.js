@@ -1,6 +1,7 @@
 gwewhr
 jtrjtr
-ťztjťut
+ťztjťut wejgew
+lhwenjlknwejhlew
 iztitzzt
 jtrjej
 jejejreergt
