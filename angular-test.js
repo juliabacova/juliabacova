@@ -2,6 +2,8 @@ gwewhr
 jtrjtr
 ťztjťut
 iztitzzt
+jtrjej
+jejejreergt
 jsroiehnoin
 jhnroeire
 pomgmepi
