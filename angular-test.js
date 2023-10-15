@@ -1,21 +1,8 @@
 gwewhr ljewnwe jnwelkgew
 lnekwkgewngew
 lnkkbewkgknw lkwngengew
-ljnknegwnlkgew
-jtrjtr jkwebkew
-bjklewlknew
-ťztjťut wejgew
-lhwenjlknwejhlew
-iztitzzt nwlkgewnlk
-jtrjej
-jejejreergt
-jsroiehnoin
-jhnroeire
-pomgmepi
-jrlemtrpmjt
-lkmnewgoh
-jnreoeojhper
-noreoi
+ngblkndk 
+lbnsdfnlkdsm ljsd
 nreoihremp
 pojegrphjre
 henrhkpore
