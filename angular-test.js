@@ -6,8 +6,8 @@ lkmsdhlknsd
 lbnsdfnlkdsm ljsd
 nreoihremp njgl m,
 pojegrphjre lknbsd
-henrhkpore
-liwghigow
+henrhkpore jnhrdfm,
+liwghigow sm ,,ndsm
 oiajskgalsk
 foiwhogwe
 iojslajkags
